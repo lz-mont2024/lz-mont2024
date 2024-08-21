@@ -1,4 +1,4 @@
-## boas vindas👋
+## Boas vindas👋
 
 *meu nome e leonardo*
 
@@ -10,9 +10,8 @@
 
 - 00001087464699sp@al.educacao.sp.gov.br
 
-  @leozin._.ksz
+  @leozin.-.ksz
 
-![](https://tenor.com/pt-BR/view/whats-up-haaland-gif-25554444)
-
+  ![](https://tenor.com/pt-BR/view/shrek-shrek-rizz-rizz-gif-11157824601050747846)
   
 
