@@ -12,6 +12,8 @@
 
   @leozin.-.ksz
 
-  ![](https://tenor.com/pt-BR/view/shrek-shrek-rizz-rizz-gif-11157824601050747846)
+  
+  ![image](https://github.com/user-attachments/assets/7fd344ac-a438-4874-9524-5e8814c3af5f)
+
   
 
