@@ -1,6 +1,6 @@
 ## Boas vindas👋
 
-*meu nome e leonardo*
+**meu nome e leonardo**
 
 -  estou estudando no alura
 -  estou me desenvolvendo na linguagem javascript
